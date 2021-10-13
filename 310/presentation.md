@@ -93,9 +93,11 @@ Oregon legislature.' 277 Ore. at 376.
 
 *** Interesting ***
 Point of the court in oregon is essentially saying that the birth certificate is critically a document
-to explain the time at birth who they were and what gender they were. Is someone is is transgender later in
+to explain the time at birth who they were and what gender they were. Is someone is transgender later in
 life then that gender when they are born? What does it mean to transition then? What if we have a birth certicate that
 doesn't state gender, and then a dynamic "sex" card that states the sex, similar to a drivers license.
+
+Is it more important to fight the process of redoing birth certificates, or to redefine the implications of the birth certificate itself.
 
 The court explained that the words of Title VII do not outlaw discrimination
 against a person who has a sexual identity disorder. It noted that the law clearly prohibits
